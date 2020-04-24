@@ -10,5 +10,5 @@ I love to exercise my creativity through writing and art. In addition, nature ha
 ## My Jewelry 
 Currently I have been expressing myself by refurbushing old/used jewelery into new piece. 
 
-![headshot](CT1.JPG)
-![headshot](CT2.JPG)
+![headshot](CT1.jpg)
+![headshot](CT2.jpg)
