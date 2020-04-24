@@ -7,10 +7,6 @@ I hope to one day be a powerful female engineer. My current interests are enviro
 ## My Hobbies
 I love to exercise my creativity through writing and art. In addition, nature has a big place in my heart. 
 
-![headshot](BLI1.JPG)
-
-a photo I took recently while on a walk outside!
-
 ## My Jewelry 
 Currently I have been expressing myself by refurbushing old/used jewelery into new piece. 
 
