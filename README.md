@@ -10,6 +10,7 @@ I love to exercise my creativity through writing and art. In addition, nature ha
 ## My Jewelry 
 Currently I have been expressing myself by refurbushing old/used jewelery into new piece. 
 
+![CT1](https://user-images.githubusercontent.com/63017373/80441791-7c603680-88c0-11ea-90a8-85ff161ae90b.jpg)
 ![CT2](https://user-images.githubusercontent.com/63017373/80441664-36a36e00-88c0-11ea-99ec-5a0d58100ad2.jpg)
 
 
