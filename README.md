@@ -10,9 +10,10 @@ I love to exercise my creativity through writing and art. In addition, nature ha
 ## My Jewelry 
 Currently I have been expressing myself by refurbushing old/used jewelery into new piece. It went from a hobby to a pursuit of business. Now that I am in school, I have slowed down production in order to enjoy the process rather than work through it like an obligation. I work with many different materials including crystals, sea glass, gems, and even leather-like cord. All my pieces also inlcude some aspect of metal - whether its simply wire wrapping, clamps, or chain. Below you can see pieces I have created and kept for myself overtime. 
 ### Gold
-![CT1](https://user-images.githubusercontent.com/63017373/80441791-7c603680-88c0-11ea-90a8-85ff161ae90b.jpg)
-![CT2](https://user-images.githubusercontent.com/63017373/80441664-36a36e00-88c0-11ea-99ec-5a0d58100ad2.jpg)
+![final3](https://user-images.githubusercontent.com/63017373/80554510-4aafa400-8982-11ea-8029-f761b88a64f0.jpg)
+![final4](https://user-images.githubusercontent.com/63017373/80554552-67e47280-8982-11ea-82fd-d5f6b7264e2d.jpg)
 ### Silver 
-![save](https://user-images.githubusercontent.com/63017373/80553824-0cb18080-8980-11ea-8361-42d7b1411e68.jpg)
-![save](https://user-images.githubusercontent.com/63017373/80553877-3a96c500-8980-11ea-985d-af61c21f8308.jpg)
+![final1](https://user-images.githubusercontent.com/63017373/80554346-b47b7e00-8981-11ea-9afe-7d8247c772e6.jpg
+![final2](https://user-images.githubusercontent.com/63017373/80554370-c4935d80-8981-11ea-8ab2-a4c9f9a50916.jpg)
+
 
