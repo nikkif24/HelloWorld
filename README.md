@@ -35,8 +35,8 @@ Currently I have been expressing myself by refurbushing old/used jewelery into n
 
 ## Get in Touch
  <ul>
- <li><a href="https://instagram.com/n1kk1flwers">Personal Instagram</a></li>
- <li><a href="https://instagram.com/peaceandpurity">Jewelry Instagram</a></li>
+ <li><a href="https://www.instagram.com/n1kk1flores/">Personal Instagram</a></li>
+ <li><a href="https://www.instagram.com/peaceandpurity">Jewelry Instagram</a></li>
  <li><a href="https://twitter.com/_NikkkiF_">Twitter</a></li>
  <li><a href="https://github.com/nikkif24">GitHub</a></li>
  </ul>
