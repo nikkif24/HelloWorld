@@ -10,7 +10,7 @@ I hope to one day be a powerful female engineer. My current interests are Softwa
     <li>
       <a href="https://docs.google.com/presentation/d/13VOl_zMnaAtm2rYQypgany8J7JBvDmHwRZmMGYOTe5A/edit?usp=sharing">Senior Project</a>
     </li>
-    </li>
+    <li>
       <a href="https://library.laverne.edu/services/library-technology-services/">Library Tech Services</a>
     </li>
     <li>
